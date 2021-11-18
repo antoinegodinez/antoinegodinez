@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @antoinegodinez
-- 👀 I’m interested in ... computer games and basketball
 - 🌱 I’m currently learning ... C and Angular
 - 💞️ I’m looking to collaborate on ... everyone
 - 📫 How to reach me ... +639667080139 / antoinegodinez19@gmail.com
